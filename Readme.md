@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **mansor.me777@gmail.com**
 
+- ⚡ Fun fact **When not coding, you'll find me exploring new technology**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
